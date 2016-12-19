@@ -1,1 +1,1 @@
-# Hagn-t-St-r-fr-i---Smilycoin
+# Hagnyt Stardfradi Smilycoin
